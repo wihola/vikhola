@@ -1,2 +1,0 @@
-# vikhola
-My intellectual legacy.
